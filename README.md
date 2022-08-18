@@ -1,5 +1,4 @@
 ## hi ✌️ 
-I'm a web developer in NYC. Catch me on the world wide web.
 
 🔗 [website](https://kristencabrera.com/) + [twitter](https://twitter.com/kris10cabrera)
 
